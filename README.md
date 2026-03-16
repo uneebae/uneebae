@@ -1,4 +1,4 @@
-# Hi there, I'm Uneeb 👋
+# Hi there, I'm Uneeb
 
 ### Technical Product Analyst | Fintech Specialist | Payment Systems Expert
 
